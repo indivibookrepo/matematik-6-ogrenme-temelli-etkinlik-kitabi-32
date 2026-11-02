@@ -1,0 +1,1 @@
+# matematik-6-ogrenme-temelli-etkinlik-kitabi-32
